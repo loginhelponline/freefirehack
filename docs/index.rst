@@ -11,8 +11,8 @@ Free Fire Hack Unlimited Free Diamonds [2-ρ]
 
   `CLICK HERE Free Fire Hack.
   <https://genrates.xyz/94f8d32>`_
-  
-    `CLICK HERE Free Fire Hack.
+
+  `CLICK HERE Free Fire Hack.
   <https://genrates.xyz/94f8d32>`_
 
 3 minutes ago - Click on the "Access Generator" button, and open the generator. Select the amount of "Free Fire Diamonds" you want to generate. A new pop-up will ask for your free fire username, enter your username and click the button "Generate". Wait for the generator to finish the generating process.
